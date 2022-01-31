@@ -22,6 +22,12 @@ You never want to know how much you weight
 You still have to squeeze into your jeans
 But you're perfect to me
 
+I won't let these little things slip out of my mouth
+But if it's true, it's you
+It's you, they add up to
+I'm in love with you
+And all these little things
+
 You'll never love yourself half as much as I love you
 And you'll never treat yourself right darling, but I want you to
 If I let you know, I'm here for you
