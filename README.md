@@ -38,3 +38,9 @@ And I've just let these little things slip out of my mouth
 It's you, they add up to
 And I'm in love with you
 And all these little things
+
+I won't let these little things slip out of my mouth
+But if it's true, it's you
+It's you, they add up to
+I'm in love with you
+And all your little things
