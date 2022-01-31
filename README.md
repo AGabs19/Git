@@ -21,3 +21,8 @@ I know you never loved the sound of your voice on tape
 You never want to know how much you weight
 You still have to squeeze into your jeans
 But you're perfect to me
+
+You'll never love yourself half as much as I love you
+And you'll never treat yourself right darling, but I want you to
+If I let you know, I'm here for you
+Maybe you'll love yourself like I love you, oh
