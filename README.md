@@ -1,4 +1,5 @@
 # Git
+
 Your hand fits in mine like it's made just for me
 But bear this mind, it was meant to be
 And I'm joining up the dots with the freckles on your cheeks
@@ -15,3 +16,8 @@ But if I do, it's you
 Oh, it's you, they add up to
 I'm in love with you
 And all these little things
+
+I know you never loved the sound of your voice on tape
+You never want to know how much you weight
+You still have to squeeze into your jeans
+But you're perfect to me
