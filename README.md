@@ -32,3 +32,9 @@ You'll never love yourself half as much as I love you
 And you'll never treat yourself right darling, but I want you to
 If I let you know, I'm here for you
 Maybe you'll love yourself like I love you, oh
+
+And I've just let these little things slip out of my mouth
+'Cause it's you, oh, it's you
+It's you, they add up to
+And I'm in love with you
+And all these little things
